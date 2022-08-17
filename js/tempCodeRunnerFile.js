@@ -1,0 +1,1 @@
+/* 1 chi uy vazifa boshlandi */
